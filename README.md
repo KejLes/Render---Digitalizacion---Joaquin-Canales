@@ -1,1 +1,1 @@
-# Render---Digitalizaci-n---Joaquin-Canales
+# Render---Digitalizacion---Joaquin-Canales
